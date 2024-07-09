@@ -9,5 +9,5 @@ Huge advocate for flawless user experience.
 Love coding any UI heavy stuff and animations. 
 <br/><br/>
 Have an endless list of hobbies.
-One of them making [covers](https://www.youtube.com/@ZoeFanniSmith). 
+One of them is making [covers](https://www.youtube.com/@ZoeFanniSmith). 
 
